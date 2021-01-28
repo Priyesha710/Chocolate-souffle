@@ -1,23 +1,25 @@
-1 teaspoon melted butter, or as needed
+## Ingredients : 
 
-2 tablespoons white sugar
+**1 teaspoon melted butter, or as needed**
 
-2 ounces 70% dark chocolate, broken into pieces
+**2 tablespoons white sugar**
 
-1 tablespoon butter
+**2 ounces 70% dark chocolate, broken into pieces**
 
-1 tablespoon all-purpose flour
+**1 tablespoon butter**
 
-4 ⅓ tablespoons cold milk
+**1 tablespoon all-purpose flour**
 
-1 pinch salt
+**4 ⅓ tablespoons cold milk**
 
-1 pinch cayenne pepper
+**1 pinch salt**
 
-1 large egg yolk
+**1 pinch cayenne pepper**
 
-2 large egg whites
+**1 large egg yolk**
 
-1 pinch cream of tartar
+**2 large egg whites**
 
-1 tablespoon white sugar, divided
+**1 pinch cream of tartar**
+
+**1 tablespoon white sugar, divided**
